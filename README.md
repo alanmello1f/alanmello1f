@@ -14,3 +14,4 @@ Meus contatos:
 
 - [LinkedIn](https://www.linkedin.com/in/alanmello1f/)
 - [Instagram](https://www.instagram.com/alanmello1f/)
+- [Youtube](https://www.youtube.com/@alanmello1f)
